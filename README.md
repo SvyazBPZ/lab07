@@ -1,1 +1,1 @@
-Labaratory work III. Demchenko Ivan IU8-22M
+Laboratory work III. Demchenko Ivan IU8-22M
